@@ -1,8 +1,3 @@
-Great 👍 Let’s move to **Module 5: Listening Skills**.
-Most learners focus only on speaking, but **good listening makes good speakers**. If you can **understand accents, speed, and real-life English**, you will naturally start speaking better.
-
----
-
 # 📘 Module 5 – Listening Skills (Detailed Explanation)
 
 ---
@@ -114,7 +109,3 @@ Real-life English is **fast**. To catch it:
 * Practice daily with **music, movies, podcasts, dictation**.
 
 ---
-
-👉 After mastering **Listening (Module 5)**, learners will start **thinking in English** and will feel confident in real conversations.
-
-Would you like me to now explain **Module 6: Speaking Practice (Daily Conversations & Role Plays)** in the same detailed way?

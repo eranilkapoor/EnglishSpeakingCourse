@@ -1,8 +1,3 @@
-Perfect 👍 Let’s dive into **Module 4: Pronunciation & Accent Training**.
-This is one of the most important parts because many learners **know grammar & vocabulary** but still **struggle to speak clearly** due to pronunciation, mother-tongue influence, and lack of practice.
-
----
-
 # 📘 Module 4 – Pronunciation & Accent Training (Detailed Explanation)
 
 ---
@@ -119,7 +114,3 @@ Tongue twisters help train your mouth muscles for clarity & fluency.
 * Practice with **tongue twisters & drills** daily.
 
 ---
-
-🔥 With **Grammar (Module 2) + Vocabulary (Module 3) + Pronunciation (Module 4)**, a learner can start **speaking clearly and confidently in simple conversations**.
-
-Would you like me to next explain **Module 5: Listening Skills** in the same detailed way?

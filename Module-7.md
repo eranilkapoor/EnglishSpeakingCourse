@@ -1,7 +1,3 @@
-Great 🚀 Let’s move on to
-
----
-
 # 📘 Module 7 – Vocabulary Building Strategies
 
 Most learners hesitate while speaking because they **don’t know the right word** at the right time.
@@ -143,5 +139,3 @@ Here are **powerful techniques** to learn new words faster:
 👉 After this module, learners will have **200–300 active words** to speak confidently in common situations.
 
 ---
-
-Would you like me to now explain **Module 8: Listening Skills Development** in the same detailed, step-by-step way?

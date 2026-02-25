@@ -1,7 +1,3 @@
-Perfect 👍 Let’s move to the most exciting part of the course:
-
----
-
 # 📘 Module 6 – Speaking Practice (Daily Conversations & Role Plays)
 
 This is the **heart of learning English** – because the main goal is to **speak confidently in real life**.
@@ -128,7 +124,3 @@ Don’t overload with rules – focus on **what is needed to talk**:
 * Vocabulary + practice = Confidence.
 
 ---
-
-⚡ By finishing **Module 6**, a learner can **handle most daily conversations in English** (shopping, travel, office, social life).
-
-Would you like me to now explain **Module 7: Vocabulary Building Strategies** in the same detailed step-by-step way?

@@ -1,8 +1,3 @@
-Great 👍 Let’s now go **step by step through Module 2: Basics of English Grammar**.
-This module is the backbone of English speaking because grammar gives **structure** to your thoughts.
-
----
-
 # 📘 Module 2 – Basics of English Grammar (Detailed Explanation)
 
 ---
@@ -137,11 +132,3 @@ Each has **4 forms** (Simple, Continuous, Perfect, Perfect Continuous).
 3. Describe objects around you using **adjectives**. (*This is a red chair.*)
 4. Use **prepositions** in real situations. (*My phone is on the table.*)
 5. Try speaking in **SVO order** even in short conversations.
-
----
-
-👉 With this grammar foundation, learners can start forming **clear, simple sentences**. The goal is not 100% grammar perfection but **confidence to use grammar in speaking**.
-
----
-
-Would you like me to next explain **Module 3: Vocabulary Building** in the same detailed way (daily words, idioms, business vocabulary, etc.)?

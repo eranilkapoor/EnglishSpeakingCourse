@@ -1,8 +1,3 @@
-Awesome 👍 Let’s go into **Module 3: Vocabulary Building** in detail.
-Vocabulary is the **fuel** of English — without enough words, grammar alone can’t help. This module focuses on learning, remembering, and **using words in daily life**.
-
----
-
 # 📘 Module 3 – Vocabulary Building (Detailed Explanation)
 
 ---
@@ -126,7 +121,3 @@ Fun activities to remember vocabulary:
 * **Games & Journals** → Make learning fun & long-lasting.
 
 ---
-
-🔥 With **Grammar (Module 2) + Vocabulary (Module 3)**, learners can now form **correct and interesting sentences**. Next step is **Module 4: Pronunciation & Accent Training**, which helps in sounding clear & confident.
-
-Would you like me to now expand **Module 4: Pronunciation & Accent Training** in detail?

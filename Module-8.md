@@ -1,7 +1,3 @@
-Perfect 👍 Let’s go step by step with
-
----
-
 # 📘 Module 8 – Listening Skills Development
 
 Speaking improves **only when listening improves**.
