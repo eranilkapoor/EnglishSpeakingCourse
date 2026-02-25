@@ -246,10 +246,11 @@
 ---
 
 👉 This roadmap ensures that by the end of 12 weeks, learners can:
-✔ Speak confidently in everyday situations
-✔ Handle professional interviews & meetings in English
-✔ Write emails & documents correctly
-✔ Listen & understand native speakers better
-✔ Build long-term fluency & confidence
+
+* ✔ Speak confidently in everyday situations
+* ✔ Handle professional interviews & meetings in English
+* ✔ Write emails & documents correctly
+* ✔ Listen & understand native speakers better
+* ✔ Build long-term fluency & confidence
 
 ---
