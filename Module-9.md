@@ -1,7 +1,3 @@
-Great! 🌟 Let’s dive into the **most exciting part**:
-
----
-
 # 📘 Module 9 – Speaking Practice Techniques
 
 👉 This is the **heart of the English Speaking Course**.
@@ -136,5 +132,3 @@ Practice **real-life situations**:
 ⚡ After this module, learners will confidently handle **real-life conversations in English** (office, travel, social life).
 
 ---
-
-Would you like me to continue with **Module 10: Pronunciation & Accent Training** (to sound clearer and more professional when speaking)?

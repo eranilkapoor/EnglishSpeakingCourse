@@ -1,7 +1,3 @@
-Great 👍 Let’s move to the next part.
-
----
-
 # 📘 Module 13 – Writing Skills
 
 Writing in English is not only for **students** (essays, exams) but also for **professionals** (emails, reports, resumes) and **everyday life** (messages, social media, blogging). Good writing shows **clarity of thought and confidence**.

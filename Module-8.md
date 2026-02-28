@@ -120,5 +120,3 @@ There are different purposes for listening:
 👉 After this module, learners will **understand English conversations faster** and reply more confidently.
 
 ---
-
-Would you like me to now continue with **Module 9: Speaking Practice Techniques** (the most exciting part where learners finally start speaking confidently)?

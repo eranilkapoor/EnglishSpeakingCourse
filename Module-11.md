@@ -1,7 +1,3 @@
-Great 👍 Let’s go ahead with the next one.
-
----
-
 # 📘 Module 11 – Listening Skills
 
 👉 Speaking improves when listening improves. If you can **understand English clearly**, you’ll respond better and faster. This module focuses on **how to train your ears** to catch real English in different accents.
@@ -122,5 +118,3 @@ Great 👍 Let’s go ahead with the next one.
 ⚡ By the end of this module, learners will **understand English conversations, movies, and fast talkers much more easily**.
 
 ---
-
-👉 Shall I continue with **Module 12: Reading Skills** (how to read faster, understand better, and build vocabulary)?

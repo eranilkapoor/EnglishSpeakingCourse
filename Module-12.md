@@ -1,7 +1,3 @@
-Perfect 👍 Let’s dive into the next part.
-
----
-
 # 📘 Module 12 – Reading Skills
 
 Reading English is not just about books — it’s about **emails, news, job descriptions, reports, and even social media posts**. Good reading skills build **vocabulary, grammar sense, and confidence** in using English daily.
@@ -123,5 +119,3 @@ Reading English is not just about books — it’s about **emails, news, job des
 ⚡ By the end of this module, learners will be able to **read faster, understand better, and use new words in speaking & writing**.
 
 ---
-
-👉 Shall I continue with **Module 13: Writing Skills** (emails, essays, social media, business writing, etc.)?

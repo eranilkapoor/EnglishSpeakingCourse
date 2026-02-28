@@ -1,7 +1,3 @@
-Perfect 👍 Let’s move to the next one.
-
----
-
 # 📘 Module 10 – Pronunciation & Accent Training
 
 👉 Many learners *know English grammar & vocabulary*, but their **pronunciation** makes them hard to understand.
@@ -125,5 +121,3 @@ This module focuses on **clear, natural, and confident speech**.
 ⚡ After this module, learners’ speech will sound **clearer, smoother, and more professional**.
 
 ---
-
-👉 Do you want me to continue with **Module 11: Listening Skills** (how to understand native speakers, movies, and fast conversations)?

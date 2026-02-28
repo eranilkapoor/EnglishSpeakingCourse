@@ -1,7 +1,3 @@
-Great question 👍 Let’s dive deep into these **3 topics from Module 1** so learners clearly understand *why* English matters, *what stops them from learning*, and *how to set realistic goals*.
-
----
-
 ## **1. Importance of English in India & Globally**
 
 English is not just a subject—it’s a skill. In India, it plays a crucial role because of our diversity in languages. Globally, it connects people across borders.
@@ -93,7 +89,3 @@ Say: *“I will practice speaking English with my friend for 10 minutes every da
 👉 **Summary:** Break your learning into small achievable steps. Celebrate small wins to stay motivated.
 
 ---
-
-⚡ So, **Importance → Myths/Fears → Goal Setting** is the foundation for an English Speaking Course.
-
-Would you like me to continue and **expand all topics from Module 2 (Basics of English Grammar)** in the same detailed way?
